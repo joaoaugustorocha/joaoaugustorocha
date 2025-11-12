@@ -25,7 +25,7 @@ Tenho alguns projetos que pretendo compartilhar em breve por aqui — ainda esto
 
 ## 📫 Contato
 - Email:  joaoaugustopaixaorocha@gmail.com
-- [LinkedIn:  https://www.linkedin.com/in/joao-augusto-paixao-rocha](https://www.linkedin.com/in/joao-augusto-paixao-rocha)
+- 💼 [Veja meu LinkedIn](https://www.linkedin.com/in/joao-augusto-paixao-rocha)
 
 ---
 
